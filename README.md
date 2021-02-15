@@ -1,6 +1,6 @@
 ## Schizophrenia
 
-[![Watch the video](https://imgur.com/a/RoZEaLp)](https://www.youtube.com/watch?v=Dz03QwYw0qI&feature=youtu.be)
+[![Watch the video](https://i.imgur.com/xlYke9B.png)](https://www.youtube.com/watch?v=Dz03QwYw0qI&feature=youtu.be)
 
 
 
